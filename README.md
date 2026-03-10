@@ -1,0 +1,2 @@
+# Vexilla--Vanguard--Collective-os-www.VexillaAITS.COM
+The Strategic Command Center for Tactical Youth Intelligence &amp; Sovereign Technology.  Vexilla-Vanguard-Collective-OS is the primary digital framework for the Vexilla Vanguard Collective (VVC)—a dual-nonprofit initiative bridging the gap between high-level application security (Vexilla AITS), ballistic hardware, and next-generation youth mentorship.
